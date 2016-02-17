@@ -1,2 +1,3 @@
 # -CESA-
-**CESA** Eğitim Planları
+**CESA** Ücretsiz Eğitim Planı
+
