@@ -14,7 +14,7 @@
 10. Üyenin ya da yanında getirdiği misafirin tesisin herhangi bir yerine zarar vermesi halinde, tutulacak tutanağa göre zarar üyeden tazmin edilir.
 11. Üye, yararlandığı spor salonuna göre gerekli spor malzemelerini(spor kıyafeti, ayakkabısı, havlu takımı, terlik vb) yanında bulundurmalıdır.
 12. Kullanıcılar görevli kişilerin uyarılarına uymak zorundadır. Bu uyarılara ve kurallara uymayanlardan tesisi terk etmesi istenecektir.
-13.Spor yaparken sorun yaratabilecek bir sağlık problemi oluştu ise tesisleri kullanım esnasında görevli eğitmene durumlarını bildirmeleri gerekmektedir.
-14.Fitness salonu kullanıcısı bu kullanma taahhütnamesini imzalayarak tüm kuralları peşinen kabul etmiş olmaktadır. Fitness salonu kullanıcısı kurallara uymadığı takdirde hakkında oluşabilecek hukuki ceza davalarını ve Mahkemelerin vereceği kararları itirazsız kabul edip maddi manevi zararları tazmin etmek zorundadır.
+13. Spor yaparken sorun yaratabilecek bir sağlık problemi oluştu ise tesisleri kullanım esnasında görevli eğitmene durumlarını bildirmeleri gerekmektedir.
+14. Fitness salonu kullanıcısı bu kullanma taahhütnamesini imzalayarak tüm kuralları peşinen kabul etmiş olmaktadır. Fitness salonu kullanıcısı kurallara uymadığı takdirde hakkında oluşabilecek hukuki ceza davalarını ve Mahkemelerin vereceği kararları itirazsız kabul edip maddi manevi zararları tazmin etmek zorundadır.
 
 
